@@ -7,7 +7,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="https://github.com/ch3rries/ch3rries/blob/main/assets/StickersDoodle_cherry_rose.16b7d873.gif?raw=true"  />
 
 ###
 
